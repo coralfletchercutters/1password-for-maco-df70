@@ -1,4 +1,4 @@
-
+premium 1Password for macOS Module | ad-blocker + junk-file-cleanup offers the most advanced 1Password for macOS module, with ad-blocker and junk-file-cleanup. Ideal for macOS
 
 
 
